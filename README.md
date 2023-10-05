@@ -1,3 +1,3 @@
 - Genderfluid
-- they/them or she/her pronouns 
+- they/them pronouns 
 
